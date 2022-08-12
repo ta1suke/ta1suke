@@ -1,4 +1,4 @@
-https://y.at/👻💥🔫🐰
+twitter -> https://twitter.com/ta1suke
 
 <!--
 **ta1suke/ta1suke** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
